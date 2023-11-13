@@ -9,7 +9,6 @@ https://drive.google.com/file/d/1b2IGlQvndvkYBmKQGSUb3gAW626sFadp/view?usp=shari
 
 MANUAL TECNICO
 https://www.canva.com/design/DAFwuXUHmFA/DMVeSWB0EXdTnJB2glS-Dw/edit?utm_content=DAFwuXUHmFA&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
-https://drive.google.com/file/d/1pEmjtbv5DEpXruQoIRkF4SNsP0M-RCXT/view?usp=sharing
 
 LINK TRELLO 
 https://trello.com/b/5CQ80fXK/proyecto-dps
